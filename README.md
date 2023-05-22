@@ -9,4 +9,4 @@ Meu nome é Arthur De Aguiar Zinher
 
 arthur.zinher@escola.pr.gov.br
 
-![](https://media.tenor.com/v6HGcZ6wpJoAAAAM/cat-the-motherfucking.gif)
+![](https://tenor.com/pt-BR/view/rock-one-eyebrow-raised-rock-staring-the-rock-gif-22113367)
